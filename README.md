@@ -10,7 +10,7 @@ Download Link
 ------------------------------
 How To Set Up And Install
 ------------------------------
-                                ///////Stupid Write Up By SuperSystem32--8-Bit-Canadian\\\\\\\
+    \\\\\\Appoligies in Advance for the Sloppy Stupid Write Up\\\\\\\//////SuperSystem32--8-Bit-Canadian\\\\\\\
 
 
 
